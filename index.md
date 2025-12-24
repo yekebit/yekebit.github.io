@@ -22,7 +22,7 @@ I am particularly interested in combining language models with structured knowle
 
 ## Contact
 
-📧 Email: yeke1303446325@gmail.com 
+📧 Email: yeke1303446325@gmail.com  1303446325@qq.com
 🔗 [GitHub](https://github.com/yekebit) 
 
 
